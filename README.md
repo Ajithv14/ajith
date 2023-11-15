@@ -98,6 +98,10 @@ end
 
 ![Octocat](https://github.githubassets.com/images/icons/emoji/octocat.png)
 
+### Small image
+
+![Octocat](./cake.jpg)
+
 ### Large image
 
 ![Branching](https://guides.github.com/activities/hello-world/branching.png)
