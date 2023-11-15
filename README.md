@@ -101,6 +101,9 @@ end
 ### Small image
 
 ![Octocat](./cake.jpg)
+### Small image
+
+<img src="./cake.jpg" ="250" ="400">
 
 ### Large image
 
