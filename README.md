@@ -51,6 +51,23 @@ Click the image to [watch the YouTube-Video-Tutorial][4].
 
 
 
+Sweep shot:
+
+It is often emphasized as the most unarthodox shot in cricket.
+But really it isn't.
+Coz some good spiners will always trick you in the good length.
+They will restrict the singles by placing correct field set too.
+In that case this is one of the life safer.
+Coz you can't give them a chance of stumping.
+Rather you've only chance of lbw or top edge cath.
+These two can be avoided by picking corect ball to sweep.
+1.Try to pick the ball which is on the good length.
+2.Try to sweep the ball which is on the leg stump or 4th or 5th stump.
+[By this you're avoiding the chance of lbw]
+3.Try to keep your head still coz head place major role in batting especially in this.
+Try to see the point of contact of the shot and then follows ths path of the ball.
+
+
 
 
 
