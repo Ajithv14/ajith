@@ -58,8 +58,8 @@ But really it isn't.
 Coz some good spiners will always trick you in the good length.
 They will restrict the singles by placing correct field set too.
 In that case this is one of the life safer.
-Coz you can't give them a chance of stumping.
-Rather you've only chance of lbw or top edge cath.
+Coz you can't give them a chance of stumping by stepping out and hitting the ball.
+Rather you've only chance of lbw or top edge.
 These two can be avoided by picking corect ball to sweep.
 1.Try to pick the ball which is on the good length.
 2.Try to sweep the ball which is on the leg stump or 4th or 5th stump.
@@ -67,9 +67,23 @@ These two can be avoided by picking corect ball to sweep.
 3.Try to keep your head still coz head place major role in batting especially in this.
 Try to see the point of contact of the shot and then follows ths path of the ball.
 
+This is something a predetermined shot we should use this to distract the bowler who is consequently bowling some good lenth where we are unable to score any runs.
+But us we are predetermined to sweep if the ball doesn't hit the exact length what we are expected we should be ready to adjust the ball in that position without doing any error.
+Coz if we do anything crazy we won't be continue our innings.
+Thats way the sweep is something a gut shot.
 
 
 
+Mindset:
+
+Cricket is often referred as the mind game.
+Coz it is a game which looks as it doesn't need any mind to play rather only good watching and hitting.
+But the people who plays, knows the real toughness in that.
+Let me tell you a small scenario.
+I was going to bat at no.5 where 
+
+#One needs to be technically strong, discipline to his routine, good food, good recovery and repeat.
+#For repeating this again and again one should have strong mindset.
 
 
 
